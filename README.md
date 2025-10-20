@@ -74,6 +74,7 @@ This project is released under the **MIT License** — you may use, modify, and 
 📍 Computer Science Graduate Student | AI & Data Science Enthusiast  
 📧 moha2012zia@gmail.com  
 🔗 [GitHub Profile](https://github.com/ziaee-mohammad)
+👉 Instagram: [@ziaee_mohammad](https://www.instagram.com/ziaee_mohammad/)
 
 ---
 
